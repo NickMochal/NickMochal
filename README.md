@@ -1,0 +1,4 @@
+- 👀 I’m interested in the world of Information Technology
+- 🌱 I’m currently learning Networking, Cloud computing, and Software/Hardware Troubleshooting
+- 📫 How to reach me nickmochalski@gmail.com
+- ⚡ Fun fact I love working out
